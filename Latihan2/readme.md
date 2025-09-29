@@ -1,0 +1,1 @@
+Program dibuat dalam waktu 28 menit 30 detik.
