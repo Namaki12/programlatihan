@@ -1,1 +1,1 @@
-Program dibuat selama 3 jam 50 menit
+Program dibuat dalam waktu 3 jam 50 menit
